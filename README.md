@@ -1,6 +1,6 @@
 # Ashraf-Ali
 # 💫 About Me:
-I'm currently learning 
+I'm currently learning
 
 
 ## 🌐 Socials:
